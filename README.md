@@ -11,5 +11,5 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with Web
 - 💬 Ask me about anything about web
 - 📫 How to reach me: @sepatukuhitamkotor
-- 😄 Pronouns: akbar
+- 😄 Pronouns: akbar 
 
